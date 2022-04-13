@@ -6,7 +6,7 @@
 
 - 🔭 I’m currently working on **Symbiose RP**
 
-- 🔭 I’m currently working on [Secret project ! ;)](http://ardox.me/symbiose.github.io/)
+- 🔭 I’m currently working on Secret project ! ;)
 
 - ⚡ Fun fact **I have a big neck**
 
